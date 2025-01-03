@@ -6,7 +6,7 @@
 
 地址1：[https://Vip.xixi6.net](https://Vip.xixi6.net/auth/register?code=SmHn)
 
-[![极速VIP机场官网地址](juzicloud_20240614_144406.png)](https://jisuvip.win/out/jisu)
+[![极速VIP机场套餐价格 最新官网地址](jisuvip_20250103_145233.png)](https://jisuvip.win/out/jisu)
 
 ## 简介
 
@@ -37,8 +37,6 @@
 |半年付|￥95.94|￥155.94|￥215.94|￥335.94|￥575.94|
 |年付|￥191.88|￥311.88|￥431.88|￥671.88|￥1151.88|
 |两年付|￥383.76|￥623.76|￥863.76|￥1343.76|￥2303.76|
-
-[![极速VIP机场套餐价格](jisuvip_20250103_145233.png)](https://jisuvip.win/out/jisu)
 
 ## 极速VIP优惠码
 
