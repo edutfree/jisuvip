@@ -1,14 +1,12 @@
 # 极速VIP官网地址2025最新入口 + 优惠码
 
-极速VIP跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
-
-下面是极速VIP最新地址：
+下面是jisuvip极速VIP最新地址：
 
 永久官网：[feisucloud.com](https://jisuvip.win/out/jisu) （原[jisuvip.com](https://jisuvip.win/out/jisu)貌似已经废弃）
 
 地址1：[https://Vip.xixi6.net](https://Vip.xixi6.net/auth/register?code=SmHn)
 
-[![极速VIP机场套餐价格 最新官网地址](jisuvip_20250103_145233.png)](https://jisuvip.win/out/jisu)
+[![极速VIP套餐价格 最新官网地址](jisuvip_20250103_145233.png)](https://jisuvip.win/out/jisu)
 
 ## 简介
 
@@ -42,7 +40,7 @@
 
 ## 极速VIP优惠码
 
-包年82折优惠代码：[T82](https://jisuvip.win/out/jisu)
+包年82折优惠代码：[TT88](https://jisuvip.win/out/jisu)
 
 ## 极速VIP官网常见问题
 
